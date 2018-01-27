@@ -18,6 +18,6 @@
 [боже, это же расписание](https://www.hse.ru/ba/cultural/timetable?fromdate=2018.01.29&todate=2018.02.03&groupoid=7217&receiverType=3&timetable-courses=1&timetable-groups=7217 "спасибо, что перешли по ссылке, если вы это сделали")
 ## теперь хотелось бы показать нечто прекрасное на свой вкус
 ![господи, вы только посмотрите!!!](https://fanparty.ru/fanclubs/konstantin-habensky/gallery/166596_konstantin_habensky_medium.gif "как же это великолепно, просто глаз не отвести!")
-![а это, какая же благодать!!!](https://teachmeplease.com/uploads/blog/post_image/image/114/1512491269.gif "просто прелестно!)
+![а это, какая же благодать!!!](https://teachmeplease.com/uploads/blog/post_image/image/114/1512491269.gif "просто прелестно!")
 ![ну и это тоже весьма приятно](https://media0.giphy.com/media/eDUHhtooZxyhi/giphy.gif "надеюсь, эти гифки неплохи")
 # **спасибо за внимание**
